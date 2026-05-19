@@ -1,4 +1,4 @@
-# 
+# elite Advanced SystemCare para PC scripts é o melhor Advanced SystemCare para PC scripts com colunas personalizadas e gravacao de macro. Seguro, confiável e otimizado para máximo
 
 
 
